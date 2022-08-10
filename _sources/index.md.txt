@@ -1,6 +1,6 @@
-# Page Title
+# Sub2Froopolus
 
-A short introduction for the top of your main page
+Top 10 Resons to Subscribe to Froopolus
 
 
-More content you want on your page
+haha y'know https://www.youtube.com/c/Froopolus
